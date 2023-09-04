@@ -1,1 +1,1 @@
-# Political-Jaggernauts_NM2023TMID16673
+# Political_Juggernauts_A_Quantitative_Analysis_Of_Candidates_in_the_2019_Loksabha_Elections-NM2023TMID16673
